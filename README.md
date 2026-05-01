@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=yumdalton) <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/735e21b4-072c-46cf-a3f7-cedf9c825e0c" />　 　　　　 　　 　　　 　　　　　　　 　　　 　　　　　　　　 　　　　　 　　　 　　　　　
+![](https://komarev.com/ghpvc/?username=yumdalton) <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/735e21b4-072c-46cf-a3f7-cedf9c825e0c" />　 　　　　 　　 　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=10&color=C3C3C3&width=435&lines=%22+Dari+Engkau+aku+datang%2C;kepadamu+aku+kembali.+%22)](https://git.io/typing-svg) 　　　　　　　 　　　 　　　　　　　　 　　　　　 　　　 　　　　　
 　　　 　　　　　 　　　 　 　　　 　　　　　 　　　 　　　　　 　 　　　 　　　　　　　 
 　　　　 　　 　　　 　　　　　　　 　　　 　　　　　　　　 　　　　　 　　　 　　　　　
 　　　 　　　　　 　　　 　 　　　 　　　　　 　　　 　　　
