@@ -4,6 +4,6 @@
 　　　　<img width="800" height="290" alt="image" src="https://files.catbox.moe/h1v6fi.jpg" />
 
 
-　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton)
+　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
 
 　　M[~` Kim "Horangi" Hong-jin🐯] whispers: GRR I'LL PROTECT YOU MY KITTEN 😏😘 -
