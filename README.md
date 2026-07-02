@@ -9,3 +9,4 @@
 　　M[~` Kim "Horangi" Hong-jin🐯] whispers: GRR I'LL PROTECT YOU MY KITTEN 😏😘 -
 
   <img width="396" height="372" alt="Image" src="https://github.com/user-attachments/assets/7babaa75-7239-4567-9c46-33ed0f4a7602" />
+  <img width="321" height="250" alt="Image" src="https://github.com/user-attachments/assets/a3f87afe-93f0-4a22-8005-a1a8bbc88311" />
