@@ -7,3 +7,5 @@
 　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
 
 　　M[~` Kim "Horangi" Hong-jin🐯] whispers: GRR I'LL PROTECT YOU MY KITTEN 😏😘 -
+
+  <img width="396" height="372" alt="Image" src="https://github.com/user-attachments/assets/7babaa75-7239-4567-9c46-33ed0f4a7602" />
