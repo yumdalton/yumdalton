@@ -8,3 +8,5 @@
 
 　　M[~` Kim "Horangi" Hong-jin🐯] whispers: GRR I'LL PROTECT YOU MY KITTEN 😏😘 -
 
+  M[Its logan...i tried , ok?...] whispers: Senpai alpha pro max
+
