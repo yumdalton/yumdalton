@@ -10,3 +10,5 @@
 
   M[Its logan...i tried , ok?...] whispers: Senpai alpha pro max
 
+  M[Cafu irl] whispers: I love u forever
+
