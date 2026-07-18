@@ -1,7 +1,9 @@
 
 　　　　　　![](https://komarev.com/ghpvc/?username=yumdalton&color=ebf4fd&label=　ʚɞ゛݁tigerss　　) <img width="60" height="40" alt="Image" src="https://files.catbox.moe/3iu5z8.gif" />
+　　　　
+             [fattchuudddbro](@rveechoso)
 
-　　　　<img width="800" height="290" alt="image" src="https://github.com/user-attachments/assets/16b27f15-f53c-4653-b7bf-885c02f63ec5" />
+  <img width="800" height="290" alt="image" src="https://github.com/user-attachments/assets/16b27f15-f53c-4653-b7bf-885c02f63ec5" />
 
 
 　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
